@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hello! i'm a first years uni studen in thailand (11/12/2024).
+I want to create something i would be proud of and make contribution to the wolrd in some way.
+I didn't come from wealth so i've always feels like i can't do anything but i want to try.
+I'm currently working on... nothing! i'm still trying to figure things out but i hope i can make some thing usefull.
+Looking forward to learning everything i could!
